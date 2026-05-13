@@ -1,4 +1,4 @@
-
+Get ahead in steal a brainrot with updated Scripts for steal a brainrot, featuring auto-collect and fly. Download now to dominate every match with ease and confidence, thanks to
 
 
 
